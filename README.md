@@ -1,2 +1,2 @@
 # help-free-speech
-Afforts by the German DenktMit association to foster free speech in russia.
+Efforts by the german DenktMit cooperative to foster free speech in repressive countries
